@@ -9,3 +9,6 @@ i go by he/she pronouns and i encourage you to use both not just one!!<br/>check
 ![diva-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/92d54698-1560-4485-bb43-eab639f9e4de)
 
 [STRAWPAGE HERE!!!!!!!!](https://theever.straw.page/) [ATABOOK HERE....... SIGN IT... NOW!!](https://kixkit.atabook.org/)
+
+
+![dannyphantom-ezgif com-resize](https://github.com/user-attachments/assets/0324dc8b-0a47-413d-8f7a-ca630ff6c8a1)
