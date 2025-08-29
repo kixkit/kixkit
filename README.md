@@ -4,9 +4,9 @@ hiiiiii!! call me whatevery you want!!<br/>if i see u whisper to me i WILL reply
 
 ![starlick-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/662eb45e-9189-46f8-a0ce-5b40be59cdad)
 
-i go by he/she pronouns and i encourage you to use both not just one!!<br/>check out my other sites which are all work in progresses but ill finish them sooner or later...
+i go by she/he pronouns and i encourage you to use both not just one!!<br/>check out my other sites which are all work in progresses but ill finish them sooner or later...
 
-![diva-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/92d54698-1560-4485-bb43-eab639f9e4de)<br/>![jx1dx1 gif by liminace-wings on tumblr](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGpkZGg4c294bzcwMnZ0bWcxY2ZpdTJzM3pid2FzbmY2d2dtMTVxdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/uQfrBvSl9dezxNWnMT/giphy.gif)
+![ihasafacelulz plaque by liminace-wings on tumblr](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExd3NydzdnbXAzYWpwN2dja2poM3Rpb2F6dHF6Mjg5c3Q3dGs4NXJrZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VupWidducq5kyYTgJE/giphy.gif)<br/>![diva-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/92d54698-1560-4485-bb43-eab639f9e4de)<br/>![jx1dx1 gif by liminace-wings on tumblr](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGpkZGg4c294bzcwMnZ0bWcxY2ZpdTJzM3pid2FzbmY2d2dtMTVxdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/uQfrBvSl9dezxNWnMT/giphy.gif)<br/>![aceofspades gif by liminace-wings on tumblr](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdWJ2c2JsNzUxeDJrZnQ2emFoNDZ2YTNtN3N3eGdwdnl5Y2QwdjloayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/95Nppa5ywtF7dMDUC8/giphy.gif)
 
 [STRAWPAGE HERE!!!!!!!!](https://zure.straw.page/) [ATABOOK HERE....... SIGN IT... NOW!!](https://kixkit.atabook.org/)
 
